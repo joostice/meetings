@@ -1,5 +1,7 @@
-## 14/05/13
-### Initial Semi-Public Meeting - Joostice
+### 14/05/13
+
+Initial Semi-Public Meeting - Joostice
+======================================
 
 ## Agenda Items;
 
