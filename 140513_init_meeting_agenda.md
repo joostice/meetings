@@ -25,4 +25,111 @@ Joostice makes cold-pressed juice. We have been running out of the KX markets fo
 We are opening shop and this could allow us to massively scale up.
 
 ### Tour of Shop
+#### 6.45-7.30pm
 
+Will walk to site and have a squiz
+
+### Supper/social catchup
+#### 7.30-8.15pm
+
+### Introduction
+#### 8.15-8.30pm
+
+### Discussion of Objectives
+#### 8.30-9.30pm
+
+### Discussion of Constitution
+#### 9.30 - 10.00pm
+
+### Discussion of Shop Fitout
+####
+#### 6.45-7.30pm
+
+Will walk to site and have a squiz
+
+### Supper/social catchup
+#### 7.30-8.15pm
+
+### Introduction
+#### 8.15-8.30pm
+
+### Discussion of Objectives
+#### 8.30-9.30pm
+
+### Discussion of Constitution
+#### 9.30 - 10.00pm
+
+### Discussion of Shop Fitout
+####
+#### 6.45-7.30pm
+
+Will walk to site and have a squiz
+
+### Supper/social catchup
+#### 7.30-8.15pm
+
+### Introduction
+#### 8.15-8.30pm
+
+### Discussion of Objectives
+#### 8.30-9.30pm
+
+### Discussion of Constitution
+#### 9.30 - 10.00pm
+
+### Discussion of Shop Fitout
+####
+#### 6.45-7.30pm
+
+Will walk to site and have a squiz
+
+### Supper/social catchup
+#### 7.30-8.15pm
+
+### Introduction
+#### 8.15-8.30pm
+
+### Discussion of Objectives
+#### 8.30-9.30pm
+
+### Discussion of Constitution
+#### 9.30 - 10.00pm
+
+### Discussion of Shop Fitout
+####
+#### 6.45-7.30pm
+
+Will walk to site and have a squiz
+
+### Supper/social catchup
+#### 7.30-8.15pm
+
+### Introduction
+#### 8.15-8.30pm
+
+### Discussion of Objectives
+#### 8.30-9.30pm
+
+### Discussion of Constitution
+#### 9.30 - 10.00pm
+
+### Discussion of Shop Fitout
+####
+#### 6.45-7.30pm
+
+Will walk to site and have a squiz
+
+### Supper/social catchup
+#### 7.30-8.15pm
+
+### Introduction
+#### 8.15-8.30pm
+
+### Discussion of Objectives
+#### 8.30-9.15pm
+
+### Discussion of Constitution
+#### 9.15 - 10.00pm
+
+### Discussion of Shop Fitout
+#### 
