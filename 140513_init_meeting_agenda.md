@@ -21,7 +21,7 @@ Initial Semi-Public Meeting - Joostice
 ### Welcome
 #### 6.30-6.45pm
 
-Joostice makes cold-pressed juice. We've been running out of the KX markets for the past 6months.
+Joostice makes cold-pressed juice. We have been running out of the KX markets for the past 6months.
 We are opening shop and this could allow us to massively scale up.
 
 ### Tour of Shop
